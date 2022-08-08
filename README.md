@@ -4,6 +4,7 @@
 
 
 price : 60 $ and with support
+and free updates
 
 how to buy : tell me telegram : @Fpro_Hacker
 
